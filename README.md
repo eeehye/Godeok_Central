@@ -1,1 +1,1 @@
-# Godeok_Central
+# plan_adidas
